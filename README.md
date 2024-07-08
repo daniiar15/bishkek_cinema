@@ -1,0 +1,1 @@
+# bishkek_cinema
